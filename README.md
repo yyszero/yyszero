@@ -14,7 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-👋 Hi there, welcome to my github.
 😄 If you are interested, you can have a look at my blog: http://yyzero.top/
 
 📫 How to reach me?Please contact me by email: iconyy@foxmail.com
