@@ -16,6 +16,8 @@ Here are some ideas to get you started:
 -->
 😄 If you are interested, you can have a look at my blog: http://yyzero.top/
 
+🌱 I’m currently learning 
+
 📫 How to reach me?Please contact me by email: iconyy@foxmail.com
 
 💬 Ask me about?Not limited to technology, it can be in many ways.
